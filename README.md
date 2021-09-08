@@ -24,3 +24,5 @@ https://www.minds.com/learnonetech/
 https://influence.co/learnonetech
 https://kit.co/learnonetech
 https://www.instagram.com/learnonetech_s/
+https://t.me/s/downloadfrptools
+
